@@ -1,2 +1,2 @@
 # regymoonraker
-Penburu airdrop
+Pemburu airdrop
